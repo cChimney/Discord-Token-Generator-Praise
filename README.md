@@ -18,6 +18,9 @@ Of course we're legit. We make sure to build a trustworthy community!
 
 <img src="https://discordapp.com/api/guilds/888611402267365436/widget.png?style=banner4" alt="Discord Shield"/>
 
+https://gyazo.com/c0fe3a3b0d47e113c1f60a1d73b28217
+
+
 
 https://user-images.githubusercontent.com/77902240/134990953-54196009-5f26-4f09-9db2-116779f529e0.mp4
 
