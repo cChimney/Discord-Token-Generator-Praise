@@ -1,13 +1,14 @@
 ![image](https://user-images.githubusercontent.com/77902240/134991212-5fd70c5b-ba5b-4427-aa7d-3452bbebafa6.png)
 
 # Praise Member Botting Services
-Need members for your Discord server? Join Praise. We'll get you members quick as long as you not broke.
+Need members for your discord server or tokens that are unlocked and cheapest in the whole community? Join praise! If you find a cheaper shop with stock we'll lower the price ;)
 
 https://discord.gg/VS8Nt2pBKF
 
 ## Questions and Answers
 **What kind of services do you sell?**
-We offer quality server botting services to get your server to a high member count.
+We offer quality server botting services to get your server to a high member count, we'll give the locked tokens so you can online the tokens!
+We also offer high quality discord tokens that are email verified! Unlimited stock( Just gotta wait a bit sometimes). UHQ so they are hard to get locked!
 
 **Are you legit?**
 Of course we're legit. We make sure to build a trustworthy community!
