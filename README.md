@@ -3,7 +3,8 @@
 # Praise Member Botting Services
 Need members for your discord server or tokens that are unlocked and cheapest in the whole community? Join praise! If you find a cheaper shop with stock we'll lower the price ;)
 
-https://discord.gg/uPBGhRWAKd
+**NEW LINK, WE GOT TERMED AGAIN**
+https://discord.gg/aqUKk2NUwR
 
 ## Questions and Answers
 **What kind of services do you sell?**
